@@ -1,0 +1,1 @@
+# K-sz-ntelek-a-szerveren.-dv-bnKa
